@@ -1,1 +1,0 @@
-# Cognizant-Week-1-hands-on-exercise-
